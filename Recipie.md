@@ -70,4 +70,6 @@ _What was the deal with the stuff before the recipie?_ Any halway decent recipie
 
 _It came out with a weird flavour, what should I do?_ Click all the ads on this page, then reread the directions.
 
-_What if I really don't like farm animals?_ We at genericwebsite.com don't judge! We have plenty of recipies that don't literally have the keyword 'vegetarian'. Maybe try some of those!
+_What if I want to add some meat to this?_ We at genericwebsite.com don't judge! We have plenty of recipies that don't literally have the keyword 'vegetarian'. This recipie only allows one modification that is mentioned above. 
+
+>"Cooking is nine parts chemistry and one part imagination, but you have to follow the rules if you want it to turn out the right way." -Gordon Ramsey -Aedan S-R
